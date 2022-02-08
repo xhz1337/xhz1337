@@ -1,6 +1,3 @@
-# hi
-* trying to code in python, js and lua
-
-![](https://komarev.com/ghpvc/?username=xhz1337&color=blue)
-
-![](https://github-readme-stats.vercel.app/api?username=xhz1337&count_private=true)
+* Love Sosa, bitches love Sosa, huh?
+* O End or no end, Raris and Rovers, ayy, li'l Cobra, ayy, ayy
+* Bang, Bang-bang, God, y'all some broke boys, God, y'all some broke boys
